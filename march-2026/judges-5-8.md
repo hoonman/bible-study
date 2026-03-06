@@ -74,3 +74,25 @@ another prophet
     - implies that strong message from last worship: 'dont believe with your eyes, believe with your 들음"
 - gideon takes down the statue of baal as god tells him to
 - gideon is STILL doubtful. even though he is a chosen man by god and god speaks to him. he TESTS god -- how dare he 
+- god tells him to go down to the camp listen to them. they say 'a round of barley bread came tumbling into the camp' 
+- lord causes a confusion among the enemies once again as he did with sisera 
+
+
+
+chapter 8
+- ephraimites questions gideon even though it was clearly his victory
+- he replies 'what did you do compared to me' 
+- gideon asks for bread for his troops to men of sukkoth but they refuse and said they will give later
+- zebah and zalmunna (both of malmites). gideon attacks them zebah and zalmunna fled but gideon chased them and cpatured them
+- he killed the men in sukkoth for not sparing his soldiers bread when he needed them
+- gideon kills the zebah and zalmunna 
+
+gideon's ephod
+- israelites said to gideon "rule over us you, your son and your grandson because you have saved us from the hand of midian"
+- i will not rule over you nor will my son rule over you. the lord will rule over you. 
+    - one request: that each of you give me an earring from your share of the plunder 
+- even though gideon done great things the israelites again did not listen and prostituted to baal. 
+
+
+the bible shows pattern yet again -- it doesn't matter how many great people inspire them as long as they are not alive for people to see them. as soon as gideon, deborah, othneil, etc died israelites go right back to worshipping baal and do everything god told them not to. its easy to falter in times of era where they lack good leaders which seems to be the main point. it is in our human nature to be unholy when we lack the precense of god and this behavior is met with punishment in one shape or another. 
+
