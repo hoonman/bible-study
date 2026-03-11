@@ -94,4 +94,24 @@ philistines capture the ark
     - hopni and phinehas died (god said this would happen and it did)
 
 death of eli 
-- 
+- 98 year old man whose eyes had failed so that he could not see. 
+- man tells eli israel fled from philistines 
+- eli fell off his chair broke his neck and died (from shock?)
+- phinehas (eli son) wife gave labor at the same time from the shock
+- the son was born named ichabod 
+- 'the glory has departed from israel -- for the ark of God has been captured'
+    - for those who aren't faithful might've thought that realistically it was when israelites fled in the first battle that the fight was lost
+    - for those who are faithful, they say they are captured and glory has departed when their spirit and belief is stripped away from the ark of God being taken away.
+
+## 1 samuel 5 
+- after philistines had captured the ark of god, they took it from ebenezer to ashdod. 
+- blasphemous act: carried the ark to dagon's temple and set it beside dagon. 
+- dagon keeps falling on his face on the ground before the ark of the lord (twice) 
+- head and hands had been broken off and were lying on the threshold 
+- destruction followed the people of ashdod
+- moved the ark of the god to Gath because it was causing mayhem in the city 
+- lord's hand was against gath even after they moved it
+- then they sent it to Ekron
+- those who did not die were afflicted with tumors and the outcry of the city went up to heaven. 
+
+
