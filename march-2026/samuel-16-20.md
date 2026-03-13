@@ -47,3 +47,10 @@ saul tries to kill david
 
 So Saul went to Naioth at Ramah. But the Spirit of God came even on him, and he walked along prophesying until he came to Naioth. 24He stripped off his garments, and he too prophesied in Samuel’s presence. He lay naked all that day and all that night. This is why people say, “Is Saul also among the prophets?”
 
+prophesied: overcome with spirit of god and begin to speak or act in ways inspired by god uncontrollably. 
+
+
+## 1 samuel 20
+david and jonathan
+- david fled and went to jonathan 
+- 
