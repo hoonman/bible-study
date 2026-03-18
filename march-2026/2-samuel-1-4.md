@@ -55,6 +55,23 @@ abner goes over to david
 - one kindness shows abner exactly who david is. 
 21 아브넬은 떠날 때가 되었을 때 다윗에게 이렇게 말하였다. “내가 돌아가면 모든 이스라엘 사람들을 불러모아 그들이 당신을 왕으로 받아들일 수 있도록 하겠습니다. 그렇게 되면 당신은 원하던 것을 다 얻게 될 것이며 나라 전체를 다스리게 될 것입니다.” 그래서 다윗은 그를 안전하게 돌아갈 수 있도록 하였다. 
 
+joab murders abner
+- joab kills abner by stabbing him in the stomach
+- david says: although i am a king chosen by kind, i am weak and these sons of zeruiah are too strong for me. may the lord repay the evildoer according to his evil deeds 
+- 
+
+# 2 samuel 4
+ish murdered
+- something i noticed was that there are more characterizations of the 'other side' when david is around. philistines are more characterized w david
+- johnathan had a son who was 'lame in both feet' (couldn't walk?)
+    - 5 years old when saul and johnathan died. his nurse picked him up and ran 
+    - mephibosheth (when his maid tried to run away with him, he fell and became disabled)
+- Rekab and baanah sons of rimmon beerothite 
+- they stabbed ish in the stomach and slipped away
+- rekab and bannah took ish head and brought it to david whom he ordered them to be killed for killing an innocent man in his own house.
+
+
+
 ## worship notes 
 - feeling guilt. 
 1. healing is the start not the destination
